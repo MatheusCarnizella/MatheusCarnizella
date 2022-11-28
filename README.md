@@ -7,3 +7,6 @@ I completed the Generation .NET Developer Full Stack Bootcamp to raise the learn
 I have the characteristic of always seeking excellence, everything and anything to add I seek to complete, if you need an answer I deliver the answer, if I don't know the answer I try to find it. Even so, I keep practicing all the knowledge acquired and always putting it on Github for confirmation.
 
 I always loved practicing English. Although most of the practices were on my own, I always trained in reading and listening by training with articles, books, websites, music and movies to maintain proficiency.
+
+
+Thanks to watching me !
